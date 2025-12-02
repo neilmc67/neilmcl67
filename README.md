@@ -1,2 +1,2 @@
-# Hi, I'm neilmcl67
-My personal repository
+# Hi, I'm Neil (neilmcl67)
+**More to come soon**
